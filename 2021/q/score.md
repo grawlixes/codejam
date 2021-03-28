@@ -1,0 +1,1 @@
+I currently have 71 out of a total possible 101 points in this round, but since we only needed 30 points to progress, I only got 42 of those points during the contest window. That put me in position 9875. I'll be participating in the next round in April.
